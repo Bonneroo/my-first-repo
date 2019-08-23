@@ -1,6 +1,6 @@
 # Nienna Divergent Backstory
 
-##What happens when our troubled elf goes rogue##
+## What happens when our troubled elf goes rogue ##
 *Reasoning behind first level of rogue*
 
 - The thing about growing up on the streets is: it makes the shadows your closest friend
@@ -10,7 +10,7 @@
 - *Have you forgotten me already?*
 - The shadows beckoned *cold*, and she entered their embrace
 
-##Sometimes we have to kill##
+## Sometimes we have to kill ##
 *Time to pick an archetype, darkest timeline*
 
 - **Not again. Please not again**
@@ -28,7 +28,7 @@
 - Tonight the shadows flicker around her, their macabre dance conveying a haunting grace.
 - Nienna closes her eyes, lets go of what's left of her remorse, and joins the cadence.
 
-##Cajoling Shadows##
+## Cajoling Shadows ##
 *Time to pick an archetype, any other timeline*
 
 - *This is an odd feeling*
